@@ -6,3 +6,8 @@
 ## Grip
 
 * https://www.wikihow.fitness/Increase-Grip-Strength
+
+## Post-exrecice stretching
+
+* https://www.jetts.com.au/jetts-life/workouts/7-stretches-you-should-be-doing-after-every-workout
+* https://www.self.com/gallery/upper-body-stretches
